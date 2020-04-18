@@ -1,2 +1,0 @@
-# shaurya.github.io
-Resume
